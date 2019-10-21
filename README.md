@@ -8,4 +8,5 @@ was an amazing experience.
 
 ![ISI Fellowship medal](medal.jpg)
 
-Thank you, ISI!
+Thank you Ciro, Dani, Giancarlo, Michele, Laetitia and thank you to
+all ISI!
